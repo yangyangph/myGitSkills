@@ -1,2 +1,2 @@
 # myGitSkills
-i love honghong!
+i love honghong and yu !
